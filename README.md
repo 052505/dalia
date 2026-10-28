@@ -1,1 +1,1 @@
-# Life goes on~ Robert Frost
+# The best things in life aren't things ~ Art Buchwald
